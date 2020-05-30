@@ -1,2 +1,0 @@
-# spraitgit.github.io
-mimi
